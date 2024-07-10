@@ -2,7 +2,9 @@
 
 Thanks for stopping by! 
 
-I needed a new desk mat and decided to draw one. It's kind of spun into a whole seriese of fun drawings and colaborations. 
+I needed a new desk mat and decided to draw one. It's kind of spun into a whole seriese of fun drawings and colaborations.
+
+Please feel free to download and use these designs as deskpads or desktop backgrounds. If you are interested in selling products with my designs, please reach out and we can talk.
 
 Featured in KBD news - https://kbd.news/Ergo-Mech-Fan-Art-2211.html
 
