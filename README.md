@@ -1,4 +1,6 @@
-Thanks fod stopping by! 
+# Mechanical Keyboard Art
+
+Thanks for stopping by! 
 
 I needed a new desk mat and decided to draw one. It's kind of spun into a whole seriese of fun drawings and colaborations. 
 
